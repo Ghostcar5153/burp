@@ -19,9 +19,10 @@ BEHOLD... the evolution of PURE CHAOS 🌀:
 ---
 
 ### HOW TO USE 🚀:
-1. Pick a resolution from the dropdown. 🎮
-2. Watch the chaos unfold. 💥
-3. Ascend to 1080p for the **BBBUUUUUURRRRPPP** 🔥.
+1. Enter [the website](https://ghostcar5153.github.io/burp/) 👅 
+2. Pick a resolution from the dropdown. 🎮
+3. Watch the chaos unfold. 💥
+4. Ascend to 1080p for the **BBBUUUUUURRRRPPP** 🔥.
 
 ---
 
